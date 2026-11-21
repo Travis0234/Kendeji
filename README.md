@@ -20,7 +20,7 @@
 * **官网：** [肯の机 - Register](https://kendeji.io/#/auth?invite=uucIlAtJ)
 * **我的邀请码：** [https://dub.sh/XdiYuyg](https://dub.sh/XdiYuyg)
 * **行业地位：** **质量非常高的优化直连**！**三网优化**架构，全线路 **CN2GIA+9929+CMIN2**。还有超低倍率 **0.01 倍不限速**节点！下载、追剧、AI、学业、办公，肯德基足够！节点有 **Nebrust、GoMami、DMIT** 等，质量非常高！
-* **博客评测：** [{直连} 肯の机 优化直连机场](https://travisblog.qzz.io/article/kendeji-review)
+* **博客评测：** [【顶级】肯の机 优化直连机场](https://travisblog.qzz.io/article/kendeji-review)
 
 ---
 
